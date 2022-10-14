@@ -1,1 +1,1 @@
-Aqui estarei realizando o upload das minhas atividades realziadas na faculdade.
+Aqui estarei realizando o upload das minhas atividades realizadas na faculdade.
